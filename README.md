@@ -2,7 +2,7 @@
 
 # Câu 1 :
 
-**Trả lời** :
+**Trả lời** : Đáp án là C. Học Máy
 
 # Câu 2 :
 
